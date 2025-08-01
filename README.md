@@ -7,8 +7,6 @@
 
 - 📫 How to reach me: **huseynovsabir8569@gmail.com**
 
-- 🔭 I’m currently working on **everything 😄**
-
 ---
 
 ### 🧩 Connect with me:
