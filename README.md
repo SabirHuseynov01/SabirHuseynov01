@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java, Spring Boot, Servlet**
 
-- 📫 How to reach me: **huseynovsabir8569@gmail.com**
+- 📫 How to reach me: **huseynovsabir904@gmail.com**
 
 ---
 
